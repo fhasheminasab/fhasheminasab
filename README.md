@@ -4,7 +4,10 @@
 
 - 📫 How to reach me: **Hasheminasab97@gmail.com**
 
-- 📄 Know about my experiences: [https://resume.io/r/Aw8UZLixD](https://resume.io/r/Aw8UZLixD)
+- 📄 Know about my experiences: 
+[Click to see Resume](https://drive.google.com/file/d/1NmhdwaAe7K9236At7cNp9xLFRRLdk35o/view?usp=drivesdk)
+
+[https://resume.io/r/Aw8UZLixD](https://resume.io/r/Aw8UZLixD)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
